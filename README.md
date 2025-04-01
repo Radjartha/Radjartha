@@ -1,6 +1,6 @@
 - 🐾Radjartha
 - 💼 Ex IT Staff from some Company & Freelancer
-- Logical Technician System, Lazy Web Developer & Graphic Designer
+- Logical Technician System & Graphic Designer
 - We Handle 10+ Brand Patner, if you want you can Contact Me (radja@radjartha.com / radjartha12@gmail.com)
 
 
